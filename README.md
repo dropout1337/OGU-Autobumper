@@ -30,4 +30,6 @@ postoptions[signature]=1<br>
 
 #
 
-I know, shit explination but deal with it.
+I know, shit explination but deal with it.<br>
+ALSO, um ogu staff... If you're reading this I am not distributing an OGU auto-bumper <3 Mearly documenting my journey..<br>
+xoxox
